@@ -15,4 +15,4 @@
 在隐私方面，平台采用了HTTPS加密技术，确保用户浏览时的安全性和隐私不被泄露。没有广告弹窗，确保用户能够专心观看影片。  
 总结来说，成人免费福利片在线观看平台凭借高清画质、免注册免下载、强大的分类功能和隐私保护，成为了成人影片爱好者的首选平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/jour54432/ribenvv1 )</span>
